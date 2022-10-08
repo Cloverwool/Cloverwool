@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cloverwool
+- 👀 I’m interested in programming and much more.
+- 🌱 I’m currently learning how to get into career programming.
+- 💞️ I’m looking to collaborate on fun projects!
+- 📫 How to reach me cloverwooldridge@gmail.com
